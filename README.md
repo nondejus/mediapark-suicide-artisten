@@ -1,0 +1,2 @@
+# mediapark-suicide-artists
+1990-2021
